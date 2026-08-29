@@ -1,4 +1,9 @@
-<img width="800" height="68" alt="image" src="https://github.com/user-attachments/assets/b5723226-710d-425b-b488-e40345b7cb09" />
-                                         
-hi its me lemooonn this is a WIP!! so it looks like this rn!!!  i will finish it prob tomorrow or idk
-<img width="469" height="272" alt="Image" src="https://github.com/user-attachments/assets/20a719ed-c3e4-4f3c-8e3e-e55085221b5c" />
+
+<img width="820" height="37" alt="violetlace" src="https://github.com/user-attachments/assets/0c37a5f3-bc79-496b-a0e4-1ae2d0df3c84" />
+
+
+
+<img width="810" height="73" alt="skyline" src="https://github.com/user-attachments/assets/baf4e917-e7bb-4fe6-88ca-0d561ffaf08e" />
+
+
+ANother wip ohhhhhhhhhhhhhhhhmyyyyyyyyyyyyydaaaaaaaaaaaaaaaaaaaaayssssssssss i will finish this one trust
